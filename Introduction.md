@@ -7,7 +7,8 @@ Here are some ideas to get you started:
 
 - I’m currently working on finishing my Bachelor of Science in Honours Chemistry
 - I’m currently learning chemistry (organic chemistry and theoretical chemistry), math and physics
-- Hobbies: Rock Climbing, Colouring, and Dancing
+- Hobbies: Rock Climbing, Colouring, Baking and Dancing
+- Favourite Food: Poutine
 - Pronouns: He/They
 - Fun fact: I know a lot of Kpop dances
 -->
